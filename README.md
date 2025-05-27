@@ -17,15 +17,29 @@ Flames licked up trunks like tongues of fury, and the sky darkened with smoke an
 Animals fled. Palm fronds sizzled.  
 The sandy trails turned to soot.
 
+![Charred path after fire](fire_state_park_FL.jpg)
+*Charred trail through the park after the wildfire*
+
 The fire raged for hours, then days.  
 What once was a quiet beachside grove became a graveyard of blackened stumps and scorched silence.
 
+![Fallen tree after fire](fallen_tree_post_fire.jpg)
+*Fallen trees*
+
 But endings lie.
+
+![Branch after fir3](tree_banch_after_fire.jpg)
+![Leaves after fire](leaves_afer_fire.jpg)
+![Leaves after fire on a bush](bush_leaves_after_fire.jpg)
+*Fire birthed beauty*
 
 Days later, the rains came—not heavy, just soft and steady, as if the sky felt sorry.  
 They cooled the land. Let the ash settle. Gave the ground a chance to breathe.
 
 And within a week—green.
+
+![New green growth](green_after_fire.jpg)
+*Later—regrowth in progress*
 
 Shoots.  
 Bright. Bold. Defiant.  
